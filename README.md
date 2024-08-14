@@ -6,3 +6,4 @@
 
 -Sou uma pessoa que prática esportes frequentemente
 
+![image](https://github.com/user-attachments/assets/4404db06-f468-4695-9ed5-907889749a9b)
